@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bababoeyyyy
-- 👀 I’m interested in amogus
+- 👀 I’m interested in monkeys
 - 🌱 I’m currently learning amougs
 - 💞️ I’m looking to collaborate on a,pogmog
 - 📫 How to reach me amog.com
